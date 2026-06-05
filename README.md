@@ -28,6 +28,12 @@ Net Разработчик
 ***
 
  <p align="center">
+<img align="center" alt="GIF" src="https://i.pinimg.com/originals/21/11/61/21116158daaeb1459b4ec0758505e1ad.gif?raw=true" width="500" height="320" />
+</p>
+
+***
+
+ <p align="center">
   <i>Let's connect and chat! Open to anything under the sun thank you.</i>
 
   <p align="center">
